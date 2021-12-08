@@ -1,1 +1,1 @@
-# python_projects
+# Thank you for visiting
